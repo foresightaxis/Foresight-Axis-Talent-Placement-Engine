@@ -37,6 +37,6 @@ See [business/pricing-models.md](business/pricing-models.md) for all revenue str
 
 ## 📩 Let’s Talk
 
-📧 foresightaxis@gmail.com  
+📧 hello@foresightaxis.com.ng 
 📱 [Join Telegram Channel](https://t.me/foresightaxis)  
 🌐 [Foresight Profile](https://bit.ly/foresightaxisprofile)
